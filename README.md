@@ -1,1 +1,1 @@
-waddup! this is were i put my ideas
+waddup! this is were i put my game ideas
